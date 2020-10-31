@@ -13,6 +13,4 @@ In tap water purification treatment provides the most competitive solution and s
 
 **Fax:** 0086-20-84713468
 
-**Email:** carlos@olansgz.com
-
 **Website: [OEM air purifier](https://www.oemairpurifier.com/)**
